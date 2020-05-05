@@ -22,4 +22,5 @@ ENGG2430 | 19/05/2020
 # My favourite song of Pink Floyd
 
 **Shine On You Crazy Diamond Pt 1-5**
-![Shine on you crazy diamond](https://www.youtube.com/watch?v=cWGE9Gi0bB0)
+![Shine on you crazy diamond](https://www.google.com/
+https://f4.bcbits.com/img/a0701161830_10.jpg)
